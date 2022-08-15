@@ -13,7 +13,6 @@
 
 - 📫 How to reach me **andrestroa@yahoo.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/andrestroa](www.linkedin.com/in/andrestroa)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
