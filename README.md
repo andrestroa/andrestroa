@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **andrestroa@yahoo.com**
 
-- 📄 Know about my experiences [linkedin.com/in/andres-troaños](linkedin.com/in/andrestroa)
+- 📄 Know about my experiences [linkedin.com/in/andrestroa](linkedin.com/in/andrestroa)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
